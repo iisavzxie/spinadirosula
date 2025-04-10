@@ -1,8 +1,8 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=iisavzxie&color=97bdf0)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=iisavzxie&color=ffed9e)
 <p align="center">
 <a href="https://github.com/samirusuki">ʚïɞ
 <p align="center">
-<img src="https://github.com/user-attachments/assets/cfe5a7a1-2e65-4719-ac0f-088df2130916">
+<img src="https://github.com/user-attachments/assets/755bbe15-2708-4337-b6fb-1c722201f45a" width=700>
 
 <img src="https://github.com/user-attachments/assets/5120b387-0fc2-4068-9f22-5289f6d765b3" width=700>
 <p align="center">
@@ -29,6 +29,6 @@
 <br> ↳ "Eww is that the person that did *insert things I did*?!" this is 2025 not 2022-2023 :-( I APOLOGIZEDDD!!! Pls don't think I'm still like my 2022-2023 self!! 
 <br> ↳ just dont be weird!!
 <p align="center">
-💧 ㅤㅤㅤ<a href="https://rentry.co/scararinahater">rentry</a> ㅤㅤ✩ㅤㅤ <a href="https://papageienkuchen.atabook.org">sign my atabook :3</a> 🎏
+🌕 ㅤㅤㅤ<a href="https://rentry.co/scararinahater">rentry</a> ㅤㅤ✩ㅤㅤ <a href="https://papageienkuchen.atabook.org">sign my atabook :3</a> 🌟
 <p align="center">
-<img src="https://files.catbox.moe/n1dt2k.png">
+<img src="https://github.com/user-attachments/assets/914114e7-5fc0-45e3-a306-4dfaf52e0249" width=700>
